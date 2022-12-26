@@ -10,3 +10,5 @@ There are other projects of mine in it, please take a look and don't leave!.
 If you have some suggestions, please discuss with me at testsendkfotesycike@gmail.com
 
 I hope to be able to share my skills and experience with you through these projects, and to learn and progress together with you. "
+
+> Let me fight my own way, don't lose my courage, don't let up! -Van Gogh
